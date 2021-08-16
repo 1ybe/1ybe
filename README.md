@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Lybe
 - 👀 I’m interested in sjer5007@yahoo.com
-- 🌱 I’m currently learning 202626836
+- 🌱 I’m currently learning 20626836
 - 💞️ I’m looking to collaborate on doc google
 - 📫 How to reach me by google map covert other benfit aera.
 
